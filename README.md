@@ -1,4 +1,4 @@
-# new_banking Edited (Caixa Geral Depositos)
+# new_banking Edited (Caixa Geral Depositos).
 
 My Discord:https://discord.gg/qmFKfcC
 
