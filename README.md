@@ -1,5 +1,6 @@
 # new_banking Edited (Caixa Geral Depositos)
 
+My Discord:https://discord.gg/qmFKfcC
 
 # Instalaçao PT
 
